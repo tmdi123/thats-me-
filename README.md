@@ -1,2 +1,1 @@
-hkmgjkgsvsvsdvsdvsd12313edgvs112331231231213123123stucked
-dfbdfb
+*stars+aduo
